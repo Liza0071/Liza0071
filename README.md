@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Liza0071
-- 👀 I’m interested in program
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning in  school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
